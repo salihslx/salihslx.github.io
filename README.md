@@ -1,1 +1,1 @@
-# salihslx.me
+# salihs-personal-website
