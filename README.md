@@ -1,1 +1,0 @@
-# salihs-personal-website
